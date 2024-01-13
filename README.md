@@ -1,7 +1,3 @@
--  Hi, I’m @thexsf
--  I’m interested in Hacking 
--  I’m currently learning nothing
-
 
 ฿ Nᴇᴛᴡᴏʀᴋ ฿
 
