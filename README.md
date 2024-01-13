@@ -1,11 +1,11 @@
 -  Hi, I’m @thexsf
 -  I’m interested in Hacking 
 -  I’m currently learning nothing
-- ฿ Nᴇᴛᴡᴏʀᴋ ฿
 
-Tᴏ Eɴᴛᴇʀ Tʜᴇ Mᴀɪɴ Cʜᴀɴɴᴇʟ : https://t.me/+zzQAb5TdDvFkYzZl
 
-ᴄʜᴀᴛ = https://t.me/+-cVb7JKYjIRiNzRl
+฿ Nᴇᴛᴡᴏʀᴋ ฿
+
+Tᴏ Eɴᴛᴇʀ Tʜᴇ Mᴀɪɴ Cʜᴀɴɴᴇʟ : https://t.me/famedron
 
 Fᴏʀ Mᴏʀᴇ Uᴘᴅᴀᴛᴇs 
 Sᴛᴀʏ Tᴜɴᴇᴅ.!! -
